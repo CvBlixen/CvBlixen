@@ -5,5 +5,4 @@ Hi there!
 🔗 Feel free to contact me via email or direct message:
 [X](https://twitter.com/carlvonblixen) /
 [LinkedIn](https://www.linkedin.com/in/carlvonblixen/) /
-[Threads](https://www.threads.net/@carl_von_blixen)
 <a rel="nofollow me" href="https://www.threads.net/@carl_von_blixen">Threads</a> <br />
